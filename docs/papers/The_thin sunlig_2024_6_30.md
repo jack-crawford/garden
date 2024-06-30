@@ -1,0 +1,7 @@
+The thin sunlight made constellations glitter in the canyon wall as the first photons danced over fragments of pyrite and teased their aspirations into winking flashes of treasure. Even though she knew it was fool-gold, like any self respecting scholar would, there was apart of the flashes still tempted her. Why not climb down a little ways, hack away at one of those fallen stars. see if it could really be precious? That one there, just a few meters down, that hasily the size of a clenched fist, that could easily go for a hundred dollars Imagine the books, " the tools. A new cloak, of course. That would be the first purchase, ALusia wrapped her standard-issue cloth dastighter. On watch duty, it was impossible to feel warm. The rest of the unit up there on the top of the rise, slept warmly in their bags. Why that insulation bas material wasn't used in the uniforms, she certainly didn't know Nobody even more there cloaks most of the time, especially not on the road. Even as she grouped silently, staring at the tempting stones, she could feel tient starting to return to her sunned back. Those definitely weren't bits of gold right? She wasn't on especi ally competent climber and if she fell down the canyon there would be hell to pay. She lemed just a bit over the edge. Itwas The water was several dozen Meters down. She'd die. Maybe it that soll was real, then, People just weren't bold enoyL.
+
+
+
+ #paper
+
+![[files/processed/IMG_7425.jpeg]]

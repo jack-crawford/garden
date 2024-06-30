@@ -1,0 +1,8 @@
+It would be cool to have a personal OCR system. 
+Imagine something like this: After taking down a page of notes or thoughts for drafted fiction, I open an app, snap a photo of the page, and close my phone. The app transmits the image to a script running on my computer, which runs the photo through a custom OCR script tailored to my handwriting end, even better, my handwritten notations. The category and project could be inferred from the head of the page, the date and tass noted from the margins, and the rest transcribed as it stands on the page. Depending on the project, content is then added to a cloud- backed file in Scrivener or Notes or wherever. It would save time on digitization, avoid the need for manual transcription, etc. I would also love the system if it could put everything up On a platform for search and management, but that sounds like a great deal of work, Being able to auto process both long-form notes and zettelkasten in a single system would be immensely powerful - the ability to search across all of that thought and work easily, remotely could be a huge asset. Perhaps Obsidian would be a good baseline system to integrate into - a system of transcription/ processing that feeds into Obsidian documents. The pieces would be straightforward - an input via photo upload to folder, a script that processes new photos into JSON objects, and then puts those objects into proper format and adds them to the target system. This might be worth playing around with!
+
+
+Date: 6/29/24
+ #paper
+
+![[files/processed/IMG_7426.jpeg]]

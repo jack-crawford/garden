@@ -1,0 +1,8 @@
+Walking across an intersection in downtown D.C., a driver careened towards the crosswalk and barely stopped before my girlfriend and I, It was a red light, and the several lanes of stopped traffic de limited visibility. Nonetheless the car nearly hit us as it rushed through the light. As we jumped out of the way and made the crosswalks clear to the driver his instinct, as the pilot of - metal machine for less fragile then the two human machines he had nearly hit, was to roll down his window and aque with us. The only people trady harmed in the interaction were the terrified passengers in his backseat for he was an Uber driver, Still, the instinct of a driver in errorvas to argue that he (visibly incorrect) was infallible compared to the humans in the picture who, correct or not, were nearly struck, The lack of consideration, of ability to admit fault, they have disconcerted me more than the close calle itself. People in vehicles in cities are so dramatically unwilling to consider others that it becomes a serious dager. The numbers support this- vehicular fatalities de on the rise, collisions with pedestrians as well. Even the
+structure of cars is becoming more hostile- where one cars use softer pliable metal that can cave or Suckle on collision (siving the other party in the impact a better chance minimizing the force they take), new vehicles like the Gubertile are openly hostile towards those around the car-made of stronger materials than civiliany could ever need.
+
+
+Date: 6/29/24
+ #paper
+
+![[files/processed/IMG_7429.jpeg]]
